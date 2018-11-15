@@ -1,0 +1,1 @@
+# Kursach_2018.2course_personal.card
